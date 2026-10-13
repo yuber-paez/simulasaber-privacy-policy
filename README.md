@@ -109,7 +109,7 @@ Podemos actualizar esta Política de Privacidad periódicamente para reflejar ca
 Si tiene alguna pregunta, inquietud o comentario sobre esta Política de Privacidad o sobre el tratamiento de sus datos personales, puede comunicarse con el responsable a través de:
 
 *   **Correo electrónico:** santiagopc333@gmail.com
-*   **Responsable:** Dosve Tech SAS
+*   **Responsable:** DOSVE TECH SAS
 
 ---
-*© 2026 [IDENTIDAD DEL RESPONSABLE]. Todos los derechos reservados.*
+*© 2026 DOSVE TECH SAS. Todos los derechos reservados.*
